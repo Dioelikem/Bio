@@ -1,2 +1,2 @@
 # Bio
-! [] (Dio_Elikem_ Bio.png)
+![](Dio_Elikem_Bio.png)
