@@ -4,4 +4,4 @@
 - Proven track record of driving topline growth of 5–10% CAGR at top-tier companies, including Medtronic, Abbott, Becton Dickinson (BD), and Nestlé.
 - Recognized for inspiring Team leadership, effective coaching, and exemplary collaboration across functions, thriving in multicultural environments in both English and French.
 
-![](Dio_Elikem_Bio.png)
+![](Dio_Elikem_ Bio.png)
